@@ -1,1 +1,2 @@
 Meu nome é Joao Gabriel de Almeida, tenho 17 anos e atualmente estou no 3 ano do ensino medio e irei me formar esse ano  e cursando informatica para internet no senai CTTI, as minhas qualidades são que eu sou extrovertido, esforçao,dedicado e sou muito bom em trabalho em quipe, por enquanto tenho conhecimento intermediario microsoft office e hardware e software, e predendo ate o final ter dominado o pacote office.
+[vantagens e desvantagens do github(1).docx](https://github.com/JaoJao10658/Sobre-mim/files/15155849/vantagens.e.desvantagens.do.github.1.docx)
