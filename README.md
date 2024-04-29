@@ -1,0 +1,1 @@
+Meu nome é Joao Gabriel de Almeida, tenho 17 anos e atualmente estou no 3 ano do ensino medio e irei me formar esse ano  e cursando informatica para internet no senai CTTI, as minhas qualidades são que eu sou extrovertido, esforçao,dedicado e sou muito bom em trabalho em quipe, por enquanto tenho conhecimento intermediario microsoft office e hardware e software.
